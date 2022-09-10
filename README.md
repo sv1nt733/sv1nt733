@@ -10,7 +10,7 @@
 
 - 🖇 I'm open to collaboration  
 
-- 🔭 I'm passionate about all things Apple, photography & music
+- 🔭 I'm passionate about all things Apple, photography & music production
 
 - 📫 How to reach me: **waughdillon66@gmail.com**
 
